@@ -1,0 +1,1 @@
+https://www.researchgate.net/profile/Ferdinand-Briegel/publication/378697723_High-resolution_multi-scaling_of_outdoor_human_thermal_comfort_and_its_intra-urban_variability_based_on_machine_learning/links/65e59e6aadc608480a009602/High-resolution-multi-scaling-of-outdoor-human-thermal-comfort-and-its-intra-urban-variability-based-on-machine-learning.pdf
